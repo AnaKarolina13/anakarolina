@@ -10,6 +10,7 @@ Utilizo esse espaço para minha organização e compartilhamentos dos meus proje
 
 **voce pode entrar em contato comigo 📱**
 
-@karoliaana501@gmail.com
+karoliaana501@gmail.com
 
 **@anakarolina**
+<img src="https://mundorubronegro.com/wp-content/uploads/2024/04/flamengo-v-palestino-copa-conmebol-libertadores-2024-scaled.jpg" alt="Próximos jogos do Flamengo: datas, horários e onde assistir"/>![Uploading image.png…]()
